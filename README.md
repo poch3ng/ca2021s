@@ -1,5 +1,5 @@
 # ca2021s
-Computer Animation
+Computer Animation:
 
 [鬼滅MMD](https://drive.google.com/drive/folders/13XZmc99cZHQMOuUBtYgwksl_SKDSP6kC?usp=sharing)
 
